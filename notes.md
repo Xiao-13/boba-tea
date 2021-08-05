@@ -1,0 +1,4 @@
+Notes
+You will likely have some simple syrup left over, which you can refrigerate for 3 to 4 weeks. You can use any kind of sugar to make simple syrup, such as light or dark brown sugar or coconut sugar. I also like to infuse my syrup with ginger by adding a few slices of ginger to the saucepan as I make the syrup.
+Typically, I leave the tea steeping the entire time so that the tea is strong and bitter. Otherwise, I find that the tea flavor is too faint when I add milk and ice cubes to the drink. Some tea leaves definitely have a stronger bitter flavor. Feel free to remove the tea bags or tea leaves after 5 minutes if you are concerned about the bitterness of the tea.
+If you are making the pearls about an hour ahead, don’t drain the pearls from the saucepan. Leave them in the hot water as the heat of the water will help keep the tapioca pearls soft.
